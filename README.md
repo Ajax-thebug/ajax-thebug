@@ -1,6 +1,6 @@
 # 👋 Hey, I’m Bhupend
 
-💻 Web Designer | 🎯 Growth Hacker | 🎮 Gamer | ⚡ ADHD-Powered Creator  
+💻 Web Designer | 🎯 Growth Hacker | 🎮 Gamer 
 🚀 Founder @The Big Sparrow – Turning ideas into beautiful, fast, high-converting digital products.
 
 ---
